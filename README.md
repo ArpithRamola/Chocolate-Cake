@@ -1,0 +1,1 @@
+Cake is a dish often made or bought by people of all religion for occasions like Birthday,Wedding Anniversary, Christmas, Valentine Day etc. Cakes were modifications of bread, but cakes now cover a wide range of preparations.
